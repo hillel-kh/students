@@ -8,6 +8,6 @@
 - [Диана Черкашина](mailto:your@mail.com?subject=Hillel)
 - [Дмитрий Шульженко](mailto:your@mail.com?subject=Hillel)
 - [Екатерина Котлярова](mailto:your@mail.com?subject=Hillel)
-- [Игорь Косовский](mailto:your@mail.com?subject=Hillel)
+- [Игорь Косовский](mailto:r.wallace2206@gmail.com?subject=Hillel)
 - [Полина Коломоец](mailto:your@mail.com?subject=Hillel)
 - [Полина Коломоец](mailto:your@mail.com?subject=Hillel)
