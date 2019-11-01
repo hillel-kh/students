@@ -10,3 +10,4 @@
 - [Екатерина Котлярова](mailto:your@mail.com?subject=Hillel)
 - [Игорь Косовский](mailto:your@mail.com?subject=Hillel)
 - [Полина Коломоец](mailto:your@mail.com?subject=Hillel)
+- [Полина Коломоец](mailto:your@mail.com?subject=Hillel)
