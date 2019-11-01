@@ -1,6 +1,6 @@
 # Students
 
-- [Александр Литвинов](mailto:your@mail.com?subject=Hillel)
+- [Александр Литвинов](mailto:litvinov1618@gmail.com?subject=Hillel)
 - [Андрей Гаркуша](mailto:your@mail.com?subject=Hillel)
 - [Антон Ефименко](mailto:your@mail.com?subject=Hillel)
 - [Виктор Овчаренко](mailto:your@mail.com?subject=Hillel)
