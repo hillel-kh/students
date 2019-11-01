@@ -7,7 +7,7 @@
 - [Глеб Воронов](mailto:your@mail.com?subject=Hillel)
 - [Диана Черкашина](mailto:dian4ik210680@gmail.com?subject=Hillel)
 - [Дмитрий Шульженко](mailto:your@mail.com?subject=Hillel)
-- [Екатерина Котлярова](mailto:your@mail.com?subject=Hillel)
+- [Екатерина Котлярова](mailto:1914820@gmail.com?subject=Hillel)
 - [Игорь Косовский](mailto:r.wallace2206@gmail.com?subject=Hillel)
 - [Полина Коломоец](mailto:your@mail.com?subject=Hillel)
 - [Полина Коломоец](mailto:your@mail.com?subject=Hillel)
