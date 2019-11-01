@@ -2,7 +2,7 @@
 
 - [Александр Литвинов](mailto:your@mail.com?subject=Hillel)
 - [Андрей Гаркуша](mailto:your@mail.com?subject=Hillel)
-- [Антон Ефименко](mailto:your@mail.com?subject=Hillel)
+- [Антон Ефименко](mailto:antonef53@gmail.com?subject=Hillel)
 - [Виктор Овчаренко](mailto:your@mail.com?subject=Hillel)
 - [Глеб Воронов](mailto:your@mail.com?subject=Hillel)
 - [Диана Черкашина](mailto:your@mail.com?subject=Hillel)
